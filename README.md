@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kahesia
+- 👀 I’m interested in listening music, playing video games and watching anime.
+- 🌱 I’m currently learning how to be an English teacher.
+- 💞️ I’m new here :(
+- 📫 How to reach me: instagram: kahecia / psn: Kahesia
